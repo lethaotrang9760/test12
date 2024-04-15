@@ -8,4 +8,4 @@ Nothing is impossible for someone who always tries.
 Mỗi ngày thêm một chút cố gắng.
 Chúc cho những điều tốt đẹp sẽ đến với bạn trong ngày hôm nay và trong cả tuần này. Chúc bạn tuần mới may mắn, bạn yêu.
 Wish you all the best, Merry Christmas.
-Hãy sống một cuộc đời thật ý nghĩa
+Hãy sống một cuộc đời thật ý nghĩa.
