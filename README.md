@@ -9,3 +9,4 @@ Mỗi ngày thêm một chút cố gắng.
 Chúc cho những điều tốt đẹp sẽ đến với bạn trong ngày hôm nay và trong cả tuần này. Chúc bạn tuần mới may mắn, bạn yêu.
 Wish you all the best, Merry Christmas.
 Hãy sống một cuộc đời thật ý nghĩa.
+Hãy tin tưởng vào sức mạnh bên trong bạn; bạn mạnh mẽ hơn bạn nghĩ và có khả năng vượt qua mọi thử thách trên con đường phía trước.
